@@ -23,5 +23,6 @@ Please don't sue me
 - Watching Japanese animation. Sometimes. I have a list of things to watch and it just keeps growing.
 - Reading the source material of said animation(s) and having a smug expression because I know what happens later.
 - Trying to learn JavaScript and looking it up when it's confusing. Many tabs are opened at such times.
+- Being at rest whilst underneath layers of cotton-wool fabric in order to peruse the vast contents of the interwebs via a portable communications device, commonly not used for its intendd purpose (Using the phone in bed).
 
 ## Other
