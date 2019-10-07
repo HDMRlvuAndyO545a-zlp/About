@@ -20,7 +20,8 @@ Please don't sue me
 
 ## Hobbies
 - Occasionally reading random books I find online. Most of them aren't that great but they're entertaining enough.
-- Watching Japanese animation. Sometimes. I have a list of things to watch and it just keeps growing
+- Watching Japanese animation. Sometimes. I have a list of things to watch and it just keeps growing.
 - Reading the source material of said animation(s) and having a smug expression because I know what happens later.
+- Trying to learn JavaScript and looking it up when it's confusing. Many tabs are opened at such times.
 
 ## Other
