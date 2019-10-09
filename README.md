@@ -1,7 +1,6 @@
 # About
 - **Name:** Andy Than
-- **Birthday:** March 5, 2002
-- **Grade:** 12
+- **Education:** Brockton High School, 12 
 
 ## Summary
 Hello. Not sure what to say except that I'm a highschool student in his senior year since any and all other information about me would fit better on another section. With that in mind, here's a picture I found while trying to figure out pictures
@@ -15,10 +14,10 @@ Please don't sue me
 ## Family
 My family is average. A mom and dad pair, and three children. The order is my brother, me, and then my sister with said sister being the youngest. Mom works at a nail salon and, last I checked, dad works as a welder. We don't have the most comfortable lifestyle, but we're living so it's fine.
 
-Currently me and my sister are in high school, meanwhile my brother is having a few difficulties.
+Currently me and my sister are in high school, meanwhile my brother is having a few difficulties moving out due to various circumstances. Not the perfect family but it's still nice to have them.
 
 ## Skills
-- Basic HTML knowledge
+- Basic HTML knowledge, can make simple websites
 - A bit of JavaScript
 - Some lab experience
 
