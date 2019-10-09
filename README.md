@@ -33,4 +33,4 @@ Currently me and my sister are in high school, meanwhile my brother is having a 
 - Eats pretty much anything as long as it tastes decent
 - Likes text emotes because I think they look nice
 
- \\(◦'⌣'◦)/       
+ -\(◦'⌣'◦)/       
