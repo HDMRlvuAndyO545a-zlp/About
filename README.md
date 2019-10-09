@@ -29,4 +29,8 @@ Currently me and my sister are in high school, meanwhile my brother is having a 
 - Being at rest whilst underneath layers of cotton-wool fabric in order to peruse the vast contents of the interwebs via a portable communications device, commonly not used for its intended purpose (Using the phone in bed).
 - Writing out of boredom and then getting frustrated when I can't figure out how to transition scenes. 
 
-## Other
+## Random Facts 
+- Eats pretty much anything as long as it tastes decent
+- Likes text emotes because they look nice
+
+\(◦'⌣'◦)/
