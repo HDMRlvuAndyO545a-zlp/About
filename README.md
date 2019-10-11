@@ -3,7 +3,9 @@
 - **Education:** Brockton High School, 12 
 
 ## Summary
-Hello. Not sure what to say except that I'm a highschool student in his senior year since any and all other information about me would fit better on another section. With that in mind, here's a picture I found while trying to figure out pictures
+Hello. Not sure what to say except that I'm a highschool student in his senior year. There isn't much to talk about besides school, all I do is laze around all day. Not much of a sports fan, and I don't like talking that much. I try to be amicable but it's hard since I'm not really a people person.
+
+I may not like sports but T.V. is nice.
 
 ![Pikachu](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTr_mJy3zkHzHSDg2CdFuU_uWfofM3fFWzryKkgT0B2mxez3NCQ)
 
