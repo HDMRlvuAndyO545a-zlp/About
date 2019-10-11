@@ -35,4 +35,5 @@ Currently me and my sister are in high school, meanwhile my brother is having a 
 
  \\(◦'⌣'◦)/       
 (　ﾟДﾟ)＜!!
-So expressive
+
+They can be very expressive
