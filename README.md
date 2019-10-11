@@ -34,6 +34,6 @@ Currently me and my sister are in high school, meanwhile my brother is having a 
 - Likes text emotes because I think they look nice
 
  \\(◦'⌣'◦)/       
-(　ﾟДﾟ)＜!!
+(　ﾟДﾟ)
 
 They can be very expressive
